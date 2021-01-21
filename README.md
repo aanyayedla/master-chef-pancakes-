@@ -1,1 +1,5 @@
-# master-chef-pancakes-
+# master-chef-pancakes- 
+Preheat your good quality, non stick pan or griddle on medium heat first. Once it’s hot, lower the heat down to low-medium heat. Wait about two minutes. This part is crucial and so worth it. Lightly grease the pan with a small amount of butter (yes, even on non stick pans), and wipe away any excess butter with a sheet of paper towel.
+Use a 1/4 cup measuring cup to pour your batter so you get perfect, evenly sized pancakes. Start pouring from the middle, then continue pouring slowly in a circular motion so that the batter spreads into perfect round shapes.
+Allow the pancakes to cook properly! Don’t rush them on high heat, or flip them too early. Let that under-side cook to a beautiful golden brown colour, and when bubbles start forming on top and around the surface (batter side), they are ready to flip.
+How to get that flip perfected without creating lopsided pancakes? Grab a good, plastic spatula and slide it underneath the pancake. Use your WRIST to gently flip them instead of using your whole arm. You’ll know what I mean when you’re in front of your pan ready to flip. THIS makes a HUGE difference.
